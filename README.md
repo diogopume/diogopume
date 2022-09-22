@@ -1,0 +1,8 @@
+- 👋 Eu,sou diogo pume..
+- insta:Vulgo-dg-pm..
+- 👀 tenho 15/16 anos ..
+- 🌱 Trabalho sendo menino da pecuária ..
+- 💞️ solteiro ..
+-  jogador caro ..
+- 📫 No meio da dificuldade encontra-se a oportunidade ..
+- email-diogo.pume@escol.pr.gov.br..
